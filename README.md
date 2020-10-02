@@ -6,3 +6,4 @@ Some thinking/books about investment
 3. 约翰博格-博格长赢投资之道
 4. 苏世民-我的经验与教训
 5. 彼得林奇-彼得林奇教你学理财
+6. 价值-高瓴资本张磊
